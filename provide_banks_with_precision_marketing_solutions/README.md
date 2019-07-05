@@ -4,7 +4,7 @@
 ### best:0.94034459
 
 ## 数据下载
-[官方下载](https://www.kesci.com/home/competition/5c234c6626ba91002bfdfdd3/content/2)
+[官方下载](https://www.kesci.com/home/competition/5c234c6626ba91002bfdfdd3/content/2)  
 [百度云下载](链接:https://pan.baidu.com/s/1KU8_gsqDYdZpIL7Khfhzvw)(密码:cjj6)
   
 
